@@ -1,1 +1,1 @@
-# joempora-scapbook.github.io
+# joempora-scapbook
